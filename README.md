@@ -1,0 +1,1 @@
+# Estudio-de-caso-1-David-N-2024_1C_SC-202_G1
